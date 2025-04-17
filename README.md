@@ -29,6 +29,7 @@ A platform where skilled students can:
 - 💬 **4K+ WhatsApp group members**
 
 From just 120 followers in month one—mostly from our own college—to students from across 🇮🇳 India now joining our mission. The growth is **compound and organic**.
+### 📈 We are ranked #1 on the Microsoft Bing search engine for the keyword 'jobcode'.
 
 ## What We're Building
 
